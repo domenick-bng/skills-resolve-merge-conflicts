@@ -1,3 +1,3 @@
-# My References
+# References
 
 * Ask for more info!
